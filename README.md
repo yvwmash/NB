@@ -46,5 +46,5 @@ Posledneye pis'mo (Gudbay Amerika),
 Song by Nautilus Pompilius
 
 
-failed me, sry
+keyboard failed me, sry
 
