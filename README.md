@@ -16,3 +16,5 @@ take a banjo, play me for the last time
 мені вже дуже малі, твої терті джинси,
 
 Кітааайці дошьють, а я піду поїм Українськиї прлодів.
+
+keyboard failed me, sry
