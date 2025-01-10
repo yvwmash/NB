@@ -1,6 +1,8 @@
 # NB
 
-Lyrics
+"The Painter" Lyrics, by Deep Purple
+
+
 Painter
 Come colour up my life
 
