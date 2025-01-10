@@ -1,50 +1,37 @@
 # NB
 
 Lyrics
-Когда умолкнут все песни
+Painter
+Come colour up my life
 
-Которых я не знаю
+Oh painter
 
-В терпком воздухе крикнет
+Come colour up my life
 
-Последний мой бумажный пароход
+Take away the misery
 
-Гудбай Америка, о
+Take away the strife
 
-Где я не был никогда
+Writer
 
-Прощай навсегда
+Make me up a play
 
-Возьми банджо, сыграй мне на прощанье
+Writer
 
-Ла-ла-ла-лай-ла-ла-ла-лай-ла, Ла-ла-ла-лай-ла-ла-ла-лай-ла
+Make the meaning gay
 
-Ла-ла-ла-лай-ла-ла-ла-лай-ла, Ла-ла-ла-лай-ла-ла-ла-лай-ла
+v1 For I don't need a poem - v2 Oh I don't need a podium
 
-Мне стали слишком малы
+Just give me words to say
 
-Твои тертые джинсы
+Singer
 
-Нас так долго учили
+Let me sing a song
 
-Любить твои запретные плоды
+Singer
 
-Гудбай Америка, о
+Let me sing a song
 
-Где я не буду никогда
+You don't have to worry, singer
 
-Услышу ли песню
-
-Которую запомню навсегда
-
-Ла-ла-ла-лай-ла-ла-ла-лай-ла, Ла-ла-ла-лай-ла-ла-ла-лай-ла
-
-Ла-ла-ла-лай-ла-ла-ла-лай-ла, Ла-ла-ла-лай-ла-ла-ла-лай-лаkeyboard 
-
-
-Posledneye pis'mo (Gudbay Amerika), 
-Song by Nautilus Pompilius
-
-
-keyboard failed me, sry
-
+Cause singer you can sing along
